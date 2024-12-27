@@ -1,1 +1,1 @@
-[Kshitiz Gajurel Portfolio](https://gajurelkshitiz.github.io/Kshitiz-Portfolio/)
+[Kshitiz Gajurel Portfolio](https://gajurelkshitiz.github.io/Portfolio/)
